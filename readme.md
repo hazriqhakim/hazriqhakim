@@ -13,5 +13,5 @@
 - *Information Technology*  
 
 **🚀 Career Goals**  
-- *Aspiring to become a software developer specializing in web and mobile applications.*  
+- *Aspiring to become a software developer specializing in web and mobile applications. Also repairing a gadget devices*  
 
